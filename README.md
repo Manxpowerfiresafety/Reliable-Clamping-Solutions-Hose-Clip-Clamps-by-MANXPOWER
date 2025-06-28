@@ -12,7 +12,7 @@ MANXPOWER Hose Clip Clamps are widely used across multiple sectors including:<br
 <b>General Plumbing: </b>For domestic and industrial water and gas line connections.<br>
 Their versatility makes MANXPOWER clamps a preferred choice for OEMs, repair technicians, and field engineers alike.<br>
 <h3>Features That Make a Difference</h3>
-What sets MANXPOWER a href="https://manximpex.com/hose-clamps/" title="Hose clip clamps" alt"Hose clip clamps" <a>Hose clip clamps</a> apart from standard products is the attention to detail in design and materials. Key features include:<br>
+What sets MANXPOWER <a href="https://manximpex.com/hose-clamps/" title="Hose clip clamps" alt"Hose clip clamps" <a>Hose clip clamps</a> apart from standard products is the attention to detail in design and materials. Key features include:<br>
 <b>Reinforced Band Structure: </b>Enhances strength under tension and ensures the clamp does not deform during tightening.<br>
 <b>Smooth Edges and Polished Finish: </b>Reduces wear and tear on hoses, providing a longer service life.<br>
 <b>Precision Screw Mechanism: </b>Offers consistent torque, allowing for efficient tightening with minimal risk of thread damage<br>
